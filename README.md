@@ -39,3 +39,5 @@ Ujwal Singh
 Feel free to reach out for collaboration or suggestions!
 
 <img width="1920" height="1200" alt="Screenshot_2025-08-30_23_21_19" src="https://github.com/user-attachments/assets/fbfdc98d-b54b-4dc5-88d5-ae7a96aacc7b" />
+<img width="1920" height="1200" alt="Screenshot_2025-08-30_23_31_52" src="https://github.com/user-attachments/assets/42f82580-3a52-4f02-b945-dcfb04ff4e4f" />
+
